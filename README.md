@@ -1,0 +1,1 @@
+read me k práci: :?
