@@ -1,1 +1,1 @@
-read me k práci: :?
+originální obrázek na tričko jako dárek
